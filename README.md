@@ -1,1 +1,1 @@
-# 2024-2025_Chicago_Bulls_Lineup_Analysis_Project
+# 2024-2025 Chicago Bulls Lineup Analysis Project
